@@ -1,4 +1,4 @@
 Hi hello everyone
 This Assignments belongs to sec 1
-hi jklooiytrredxccvb
-heloooooooooooooooooooooooo
+hi
+hello
